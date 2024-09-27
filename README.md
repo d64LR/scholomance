@@ -1,6 +1,6 @@
 # scholomance
 
-╰( ⁰ ਊ ⁰ )━☆ﾟ.*･｡ﾟ******/-/\\//
+╰( ⁰ ਊ ⁰ )━☆ﾟ.*･｡ﾟ******/-/\\/\/\
 
 **All programs contained within scholomance shall be considered dangerous**
 

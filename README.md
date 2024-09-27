@@ -1,7 +1,7 @@
 # scholomance
 
-╰( ⁰ ਊ ⁰ )━☆ﾟ.*･｡ﾟ******
+╰( ⁰ ਊ ⁰ )━☆ﾟ.*･｡ﾟ******/-/\//
 
-/*[ALL PROGRAMS CONTAINED HEREIN MAY BE CONSIDERED DANGEROUS]
+**All programs contained within scholomance shall be considered dangerous**
 
-[USE AT YOUR OWN DISCRETION]*/
+**Use at your own discretion**
